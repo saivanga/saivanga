@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋! My name is Sai Vanga and I am 10 years old. I like to play video games and win board games etc. I also have a sister named Lasya Vanga.
 
 <!--
 **saivanga/saivanga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
