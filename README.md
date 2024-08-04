@@ -1,6 +1,6 @@
 ### Hi there 👋! 
 
-My name is Sai Vanga and I am 10 years old. 
+My name is Sai Vanga and I am 13 years old. 
 
 I like to play video games and board games etc. 
 
